@@ -1,5 +1,9 @@
 Fluffy, Buttery Dinner Rolls
 =======
+| Cooking Time |   Serves |
+| ------------ | -------- |
+|      2 hours | 16 rolls |
+
 
 ## Ingredients
 * 1 1/2 cups warm water
