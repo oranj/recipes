@@ -1,5 +1,8 @@
 Sage Dressing
 =======
+| Total Time | Serves |
+| ---------- | ------ |
+|    2 hours |      4 |
 
 INGREDIENTS
 * 4 cups of bread cubes

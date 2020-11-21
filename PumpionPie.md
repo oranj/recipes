@@ -1,5 +1,9 @@
-Pumpion Pie
-========
+Pumpion Pie Filling
+=============
+| Total Time |   Serves | Wait Time |
+| ---------- | -------- | --------- |
+|    2 hours |        8 |   1 hour  |
+
 INGREDIENTS
 * 1 Sugar or Pie Pumpkin
 * 2 Sharp Apples (ex. Granny Smith)

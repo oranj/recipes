@@ -1,5 +1,8 @@
 The Judy Bird
 =======
+| Prep Time |       Cooking Time |   Serves | Wait Time |
+| ----------| ------------------ | -------- | --------- |
+|  72 hours | 3 hours 15 minutes | 11 to 15 |   1 hour  |
 
 ## Ingredients
 * 1 12- to 16-pound turkey (frozen is fine)
