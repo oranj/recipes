@@ -4,7 +4,7 @@ Sage Dressing
 | ---------- | ------ |
 |    2 hours |      4 |
 
-INGREDIENTS
+## Ingredients
 * 4 cups of bread cubes
 * 3 tablespoon chopped onion
 * 1 teaspoon salt
@@ -15,6 +15,6 @@ INGREDIENTS
 * 1 and 1/2 chopped celery
 * chicken stock to moisten
 
-METHOD
+## Method
 1. Combine and place in crock pot.
 2. Cook for two hours or more on low heat check frequently to monitor moisture level. Add stock as needed

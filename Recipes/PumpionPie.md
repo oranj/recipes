@@ -4,7 +4,7 @@ Pumpion Pie Filling
 | ---------- | -------- | --------- |
 |    2 hours |        8 |   1 hour  |
 
-INGREDIENTS
+## Ingredients
 * 1 Sugar or Pie Pumpkin
 * 2 Sharp Apples (ex. Granny Smith)
 * 3 Eggs beaten
@@ -17,7 +17,7 @@ INGREDIENTS
 * Lard or Vegetable Oil for frying (optional)
 * 1 Nine-Inch Pie Crust
 
-METHOD
+## Method
 1. Set the oven to 425°F (220°C) and line a pie dish with your pie dough.
 2. Peel the pumpkin, then remove the stem and seeds, and quarter it. Slice each piece into thin slices, about 1/4 inch thick. Repeat this process with the apples.
 3. Put 2 tablespoons of the butter into a frying pan and set over medium heat. Note that, depending on the amount of pumpkin you fry, you may require more butter; you can also use lard or vegetable oil. Then mix the herbs into the beaten eggs and dip the pumpkin slices into the egg, coating them lightly. Then place them into the frying pan and fry for 10 minutes, or until the pumpkin is quite soft. Depending on the size of your pumpkin, you may need to do this in several batches. The pumpkin should not be more than 3 layers thick in the pan.
