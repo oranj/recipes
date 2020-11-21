@@ -13,7 +13,7 @@ The Judy Bird
     * or rosemary and lemon zest
 * Melted butter, for basting (optional)
 
-## Recipe
+## Method
 1. Wash the turkey inside and out, pat it dry, and weigh it. Measure 1 tablespoon of salt—we used Diamond Crystal kosher—into a bowl for every 5 pounds the turkey weighs (for a 15-pound turkey, you'd have 3 tablespoons). You can flavor the salt with herbs and spices if you like—try a pinch of smoked paprika and orange zest, bay leaf and thyme, or rosemary and lemon zest. Grind together with the salt in a spice grinder, small food processor, or mortar and pestle.
 2. Sprinkle the inside of the turkey lightly with salt. Place the turkey on its back and salt the skin of the breasts, concentrating the salt in the center, where the meat is thickest. You'll probably use a little more than a tablespoon.
 3. Turn the turkey on one side and sprinkle the entire side with salt, concentrating on the thigh. You should use a little less than a tablespoon. Flip the turkey over and do the same with the opposite side.
