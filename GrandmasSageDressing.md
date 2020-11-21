@@ -14,4 +14,4 @@ INGREDIENTS
 
 METHOD
 1. Combine and place in crock pot.
-2.  cook for two hours or more on low heat check frequently to monitor moisture level. Add stock as needed
+2. Cook for two hours or more on low heat check frequently to monitor moisture level. Add stock as needed
