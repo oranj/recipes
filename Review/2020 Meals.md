@@ -74,7 +74,7 @@
 ![image](https://sweetpeasandsaffron.com/wp-content/uploads/2017/08/Cauliflower-Rice-Black-Bean-Burritos-3-600x900.jpg)
 
 ### Baked Polenta [link](https://tworedbowls.com/2016/09/07/baked-polenta/)
-![image](https://tworedbowls.com/2016/09/07/baked-polenta/)
+![image](https://tworedbowls.com/wp-content/uploads/2016/09/29043652660_555b9c2d60_h-1024x684.jpg)
 
 ### Red Curry Kabocha Soup [link](https://tworedbowls.com/2019/12/04/red-curry-kabocha-soup/)
 ![image](https://tworedbowls.com/wp-content/uploads/2019/11/DSC_0963-768x960.jpg)
@@ -171,6 +171,9 @@
 
 ### Perfect Party Cake [link](https://www.growingupcali.com/2018/01/dorie-greenspan-perfect-party-cake/)
 ![image](https://i2.wp.com/www.growingupcali.com/wp-content/uploads/2018/01/Party-Cake-Blog-Scene.jpg?w=789&ssl=1)
+
+### asian pear and jasmine crumbles [link](https://tworedbowls.com/2018/11/02/asian-pear-and-jasmine-crumbles-a-common-table-giveaway/)
+![image](https://tworedbowls.com/wp-content/uploads/2018/11/45675413991_d682c0427c_o-684x1024.jpg)
 
 ## Less good ones
 https://asassyspoon.com/cuban-style-arroz-con-pollo/
