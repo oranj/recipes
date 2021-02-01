@@ -2,25 +2,28 @@
 
 ## Favorites
 
-### Cuban Style Beef Picadillo Recipe
-[link](https://asassyspoon.com/cuban-style-beef-picadillo-recipe/)
+### Cuban Style Beef Picadillo Recipe [link](https://asassyspoon.com/cuban-style-beef-picadillo-recipe/)
 ![image](https://asassyspoon.com/wp-content/uploads/cuban-style-beef-picadillo-6.jpg)
 
-### Easy Vegetarian Thai Coconut Soup
-[link](https://asassyspoon.com/easy-vegetarian-thai-coconut-soup/)
+### Easy Vegetarian Thai Coconut Soup [link](https://asassyspoon.com/easy-vegetarian-thai-coconut-soup/)
 ![image](https://asassyspoon.com/wp-content/uploads/2018/01/vegetarian-thai-coconut-soup-dairy-free-easy1.jpg)
 
-### Chicken and Avocado Zucchini-Noodle Bowl
-[link](https://blog.myfitnesspal.com/chicken-and-avocado-zucchini-noodle-bowl/)
+### Chicken and Avocado Zucchini-Noodle Bowl [link](https://blog.myfitnesspal.com/chicken-and-avocado-zucchini-noodle-bowl/)
 ![image](https://blog.myfitnesspal.com/wp-content/uploads/2018/08/Chicken-and-Avocado-Zucchini-Noodle-Bowl-752x472.jpg)
 
-### Red Chilaquiles
-[link](https://cookieandkate.com/best-red-chilaquiles-recipe/)
+### Red Chilaquiles [link](https://cookieandkate.com/best-red-chilaquiles-recipe/)
 ![image](https://cookieandkate.com/images/2019/10/best-red-chilaquiles-recipe-3-768x1154.jpg)
 
-+ https://familystylefood.com/white-three-bean-chili/
-+ https://food52.com/recipes/82525-coconut-curry-lentil-soup-with-sweet-potato
-+ https://food52.com/recipes/83898-best-butternut-squash-soup-recipe
+### White Three-Bean Chili with Sausage [link](https://familystylefood.com/white-three-bean-chili/)
+![image](https://familystylefood.com/wp-content/uploads/2019/11/3-bean-chili-beauty.jpg)
+
+### Coconut & Red Curry Lentil Stew With Sweet Potatoes [link](https://food52.com/recipes/82525-coconut-curry-lentil-soup-with-sweet-potato)
+![image](https://images.food52.com/oeqUnDgIEjo1EAUObnXMMNOK730=/1008x672/filters:format(webp)/f5713b03-2528-4e7d-a33d-1b17a8bd7767--2020-0124_curried-red-lentil-soup_3x2_julia-gartland_197.jpg)
+
+### Butternut Squash Soup [link](https://food52.com/recipes/83898-best-butternut-squash-soup-recipe)
+![image](https://images.food52.com/Bgbj2JVsn2kCXeppAOjGbukaF48=/1008x672/filters:format(webp)/eb81ec8a-b907-4013-bd1f-ac0743670028--2020-0721_best-butternut-squash-soup_3x2_julia-gartland_016.jpg)
+
+
 + https://smittenkitchen.com/2006/10/easiest-baked-mac-and-cheese/
 + https://smittenkitchen.com/2016/08/summer-squash-pizza/
 + https://smittenkitchen.com/2017/06/easy-drop-berry-shortcakes/
